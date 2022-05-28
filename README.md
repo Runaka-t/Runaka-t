@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Runaka-timothy
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning it
-- 💞️ I’m looking to collaborate on this forum
 - 📫 How to reach me : kaliisatimothy9@gmail.com 
 And +256756228352
 
