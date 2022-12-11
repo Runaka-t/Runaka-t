@@ -1,6 +1,5 @@
-- 👋 Hi, I’m @Runaka-timothy
+- 👋 Hi, I’m Runaka
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning it
 - 📫 How to reach me : kaliisatimothy9@gmail.com 
 And +256756228352
 
